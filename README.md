@@ -10,7 +10,7 @@
 <p align="center">
   <a href="https://blacksabbath.atabook.org/">atabook</a>
 </p>
-<p>　　17 y.o cismale, no dni i'll block for whatever reason (no hard feelings) but quick byi i'm openly not a good person & i don't care ab proshippers + i believe any form of censorship in fiction is inherently harmful</p>
+<p>　　　quick byi i'm a 17 y.o cismale & openly not a good person, i don't care ab proshippers + i believe any form of censorship in fiction is inherently harmful</p>
 
 
 <p align="center"></p>
